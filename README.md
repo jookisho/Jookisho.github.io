@@ -1,1 +1,0 @@
-# jookisho.github.io
